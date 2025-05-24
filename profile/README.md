@@ -5,9 +5,9 @@
 This article takes a deep dive into the tool’s capabilities, supported platforms, and why it's considered an essential asset in mobile repair and servicing workflows.
 
 
-## [👉👉 TFT Unlock Tool  v4.6.4.4 Windows](https://tft-unlock-tool.com)
+## [👉👉 TFT Unlock Tool  v4.6.4.4 Windows](https://tft-unlock-tool.com/)
 
-## [👉👉 TFT Unlock Tool  v6.2.1 Windows](https://tft-unlock-tool.com)
+## [👉👉 TFT Unlock Tool  v6.2.1 Windows](https://tft-unlock-tool.com/)
 
 
 
